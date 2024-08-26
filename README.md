@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working as Devops Engineer at Aerodyne
+🔭 I’m currently working as a Consultant
 
 
 ## 🌐 Socials:
